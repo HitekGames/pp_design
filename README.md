@@ -42,4 +42,6 @@
 [2024-11-18 22-59-44.mp4](img/2024-11-18%2022-59-44.mp4)  
 
 ## Полезные ссылки  
-https://powerresins.com/blogs/news/stone-in-place-casting-for-high-end-jewelry
+https://powerresins.com/blogs/news/stone-in-place-casting-for-high-end-jewelry  
+https://www.youtube.com/watch?v=EB8juj3Stw0  
+https://www.youtube.com/watch?v=9tH3Yw9-0bI  
