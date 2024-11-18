@@ -40,3 +40,6 @@
 
 ## Видео пример работы  
 [2024-11-18 22-59-44.mp4](img/2024-11-18%2022-59-44.mp4)  
+
+## Полезные ссылки  
+https://powerresins.com/blogs/news/stone-in-place-casting-for-high-end-jewelry
